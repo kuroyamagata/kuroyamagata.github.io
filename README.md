@@ -1,0 +1,1 @@
+# kuroyamagata.github.io
